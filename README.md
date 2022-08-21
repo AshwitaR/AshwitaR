@@ -5,12 +5,12 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently trying to find my aim
-- 🌱 I’m currently learning to be good in python
-- 👯 I’m looking for a brain
-- 🤔 I’m looking for help with don't know
-- 💬 Ask me about my knowledge
-- 📫 How to reach me: I live in heaven
-- 😄 Pronouns: she
-- ⚡ Fun fact: I can move my veins
+Currently trying to find my aim
+Soul is in music
+fun fact: I can speak 4 languages lol
+Living in India,Kerala
+Programming💟
+Steps guided by manmadha bro~ R Ashwin
+Have a good day
+
 
