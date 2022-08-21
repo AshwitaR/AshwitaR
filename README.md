@@ -6,7 +6,9 @@
 Here are some ideas to get you started:
 
 Currently trying to find my aim
+
 Soul is in music
+
 fun fact: I can speak 4 languages lol
 Living in India,Kerala
 Programming💟
