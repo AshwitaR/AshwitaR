@@ -9,7 +9,7 @@ Currently trying to find my aim
 
 Soul is in music
 
-fun fact: I can speak 4 languages lol
+fun fact : I can speak 4 languages
 
 Living in India,Kerala
 
